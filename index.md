@@ -68,3 +68,20 @@
 ## [Aves](https://es.wikipedia.org/wiki/Aves)
 
 ***
+
+
+## ***Accesorios***
+
+***
+
+#### Arena
+
+<img src= "arena.jpg" width="250">
+
+***
+
+#### Camas
+
+#### Juguetes
+
+#### Alimento
